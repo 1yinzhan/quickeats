@@ -1,3 +1,0 @@
-"# quickeats" 
-"# quickeats" 
-"# quickeats" 
